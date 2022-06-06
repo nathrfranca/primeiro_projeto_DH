@@ -1,0 +1,1 @@
+Seguindo as atividades do Playground para testes.
